@@ -1,0 +1,1 @@
+# cortjade6-naver.com
